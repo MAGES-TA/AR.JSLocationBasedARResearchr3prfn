@@ -1,1 +1,0 @@
-# AR.JSLocationBasedARResearchr3prfn
